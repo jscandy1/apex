@@ -29,7 +29,7 @@ Here's what you're missing: **the game behind the game.**
 
 While you've been optimizing your résumé and reading self-help books, apex predators have been mastering the circuits of power, building leverage, and operating with a ruthlessness that makes success inevitable.
 
-This book will show you how.
+This book will show you how to win the game that you didn't know you were playing.
 
 ## THE 50 LAWS
 
