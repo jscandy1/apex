@@ -1,7 +1,7 @@
 # INTRODUCTION
 ## THIS WILL HURT YOUR EGO
 
-You're not losing in life because you're dumb, ugly, or cursed.
+You're not losing in life because you're dumb, unlucky, or cursed.
 
 You're losing because no one handed you the rule book. And while you've been playing fair, following the advice from your parents, teachers, and motivational Instagram accounts, there's been an invisible game running in the background. A game with different rules. Brutal rules. Rules that the elite minority understands and the majority ignores.
 
@@ -9,7 +9,7 @@ This book is that rule book.
 
 But let me be clear about what this isn't.
 
-**This isn't therapy.** I'm not here to validate your feelings or make you feel better about your circumstances. If you want someone to tell you that you're perfect just the way you are, close this book and go watch a TED Talk.
+**This isn't therapy.** We are not here to validate your feelings or make you feel better about your circumstances. If you want someone to tell you that you're perfect just the way you are, close this book and go watch a TED Talk.
 
 **This isn't motivation.** Motivation is a drug that wears off by Tuesday. This is about raw, unfiltered truth that rewires how you see reality. Motivation gets you to the gym once. Truth builds the iron discipline that keeps you there for a decade.
 
@@ -67,7 +67,7 @@ You can read it front to back. Or you can jump to the law that speaks to where y
 
 But here's what you can't do: **read it passively.**
 
-Every chapter ends with "Keys to Power"—specific, tactical actions you can implement immediately. If you read this book like entertainment and don't apply the laws, you've wasted your time and my effort.
+Every chapter ends with "Keys to Power"—specific, tactical actions you can implement immediately. If you read this book like entertainment and don't apply the laws, you've wasted your time and our effort.
 
 This isn't a book to consume. It's a book to execute.
 
