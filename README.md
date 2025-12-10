@@ -67,14 +67,11 @@ Dr. Lee's approach is characterized by brutal honesty, systems thinking, and a r
 
 ### Candace Lyons
 
-**Chief Operating Officer, Defense Technology Security Administration (DTSA)**
+**Strategic Operations Leader & Organizational Change Expert**
 
-Candace Lyons serves as the COO of the Defense Technology Security Administration, where she oversees critical operations protecting U.S. national security interests. With a distinguished career in defense and strategic leadership, Lyons has operated at the highest levels of government and private sector organizations.
+Candace Lyons is a proven leader with decades of experience guiding complex organizations through mission-critical operations that protect national interests and strengthen global partnerships. Known for her ability to deliver results in high-pressure environments, she brings clarity, precision, and accountability to every challenge she faces.
 
-Her expertise spans operational excellence, strategic planning, and navigating high-stakes environments where failure is not an option. Lyons brings a perspective forged in real-world pressure—where decisions have consequences and execution is everything.
-
-**Learn More:**
-- [DTSA Leadership Bio](https://www.dtsa.mil/SitePages/about-dtsa/leadership/bio-lyons.aspx)
+Ms. Lyons’ perspective is shaped by years of navigating the intersection of policy, technology, and leadership, earning her a reputation as a trusted voice in operational strategy and organizational transformation. Her expertise spans operational excellence, strategic planning, and navigating high-stakes environments where failure is not an option. Ms. Lyons brings a perspective forged in real-world pressure—where decisions have consequences and execution is everything.
 
 ---
 
