@@ -75,8 +75,6 @@ Candace Lyons is a proven leader with decades of experience guiding complex orga
 
 Her expertise spans operational excellence, strategic planning, and navigating high-stakes environments where failure is not an option. Lyons brings a perspective forged in real-world pressure—where decisions have consequences and execution is everything.
 
-**Learn More:**
-- [DTSA Leadership Bio](https://www.dtsa.mil/SitePages/about-dtsa/leadership/bio-lyons.aspx)
 
 ---
 
@@ -85,7 +83,7 @@ Her expertise spans operational excellence, strategic planning, and navigating h
 This book combines:
 
 - **Dr. Lee's** cutting-edge insights on performance optimization, AI-driven strategy, and entrepreneurial ruthlessness
-- **Lyons'** operational discipline, high-stakes leadership experience, and uncompromising standards forged in national security environments
+- **Ms. Lyons'** operational discipline, high-stakes leadership experience, and uncompromising standards forged in national security environments
 
 Together, they deliver a framework that's both intellectually rigorous and brutally practical—built for the elite few who refuse to accept average.
 
