@@ -42,6 +42,8 @@ This book is for the ambitious, the frustrated, and the hungry:
 
 ### Who This Book Is NOT For
 
+This book is not for you:
+
 - If you need content warnings
 - If you think the world should adapt to your comfort zone
 - If you want validation instead of transformation
