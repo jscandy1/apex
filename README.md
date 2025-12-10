@@ -80,7 +80,7 @@ Ms. Lyons’ perspective is shaped by years of navigating the intersection of po
 This book combines:
 
 - **Dr. Lee's** cutting-edge insights on performance optimization, AI-driven strategy, and entrepreneurial ruthlessness
-- **Lyons'** operational discipline, high-stakes leadership experience, and uncompromising standards forged in national security environments
+- **Ms. Lyons** operational discipline, high-stakes leadership experience, and uncompromising standards forged in national security environments
 
 Together, they deliver a framework that's both intellectually rigorous and brutally practical—built for the elite few who refuse to accept average.
 
